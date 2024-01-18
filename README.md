@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jccooper18
-- 👀 I’m interested in expanding my working knowledge in multiple languages.
+- 👀 I’m interested in expanding my working knowledge in multiple languages and platforms.
 - 🌱 I’m currently working towards my Bachelors in Applied Computer Science with a minor in Global Business
 - 📫 How to reach me: personal email is best, at jccooper18@hotmail.com
 - 😄 Pronouns: He/Him
